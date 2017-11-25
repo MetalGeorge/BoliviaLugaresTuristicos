@@ -20,15 +20,15 @@ Conoce, disfruta, vive, siente y explora los lugares turísticos de Tarija Boliv
 ## Provincias de Tarija ‘Pintorescos atractivos turísticos’
 Para comenzar esta singular vivencia, déjese arrullar por el rubor del rió y despierte con el trino de las aves.
 
-###Lugares turísticos de Tarija ‘Históricos’
+### Lugares turísticos de Tarija ‘Históricos’
 San Lorenzo.- comenzamos visitando San Lorenzo cuna del héroe de la independencia Eustaquio Méndez más conocido como el Moto Méndez.
 
-![San Lorenzo] (https://upload.wikimedia.org/wikipedia/commons/1/15/Iglesia_de_San_Lorenzo_-_Tarija..jpg )
+![San Lorenzo](http://3.bp.blogspot.com/-sXN2Dc1_6CU/U-dww7HaRCI/AAAAAAAAT5M/qWV8s8HtTRw/s1600/san_lorenzo.jpg)
 
 ### Destinos turísticos de Tarija ‘Recreacionales’
 Tomatitas.- situada a orillas del rió Guadalquivir esta localidad se encuentra a 5 km de la ciudad de Tarija.
 
-[Imagen]
+[Tomatitas](http://www.periodicolaregion.com/v2/media/k2/items/cache/d521b3285331148964fc0a459a826ae3_XL.jpg)
 
 Este destino turístico nos ofrece la gastronomía de los Cangrejitos de agua dulce, muy ricos y sabrosos.
 
@@ -36,11 +36,11 @@ Es un plato tradicional y lo puedes degustar con limón, papas, mote y pescadito
 
 Cercando la ciudad está la campiña tarijeña de espectacular belleza, San Jacinto, Tomatitas, Coimata, tolomosa, el Rincón de la Victoria son nombres de esto bellos paisajes que se encuentran entre los 5 y 15 km de la ciudad.
 
-![Campiña Tarijeña] (http://1.bp.blogspot.com/-yBgCCGIboKY/T2c_Mrk7A-I/AAAAAAAACCI/NUIFicC51Rw/s1600/coimata.jpg )
+![Campiña Tarijeña](http://lavozdetarija.com/wp-content/uploads/2017/03/Sendas-campi%C3%B1a-e1488768445786.jpg)
 
 Tienes que conocer su historia, tradición y los muchos lugares turísticos de Tarija en “la ruta del Vino y los Singanis de altura”.
 
-![Ruta del Vino y Singani] (http://www.pathsofexcellence.org/wp-content/uploads/2013/05/tarija_vinedos.jpg )
+![Ruta del Vino y Singani](http://www.vtbtourtarija.com/vtb/wp-content/uploads/2014/01/4.jpg)
 
 ### Sitios turísticos de Tarija ‘Bodegas y Viñedos’
 Uriondo.- a tan solo media hora de Tarija por una vía asfaltada es la capital del municipio de Uriondo y se conoce también como la tierra del vino y la uva.
