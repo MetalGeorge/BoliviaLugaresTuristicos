@@ -25,12 +25,10 @@ San Lorenzo.- comenzamos visitando San Lorenzo cuna del héroe de la independenc
 
 ![San Lorenzo](https://upload.wikimedia.org/wikipedia/commons/1/15/Iglesia_de_San_Lorenzo_-_Tarija..jpg )
 
-![San Lorenzo](http://3.bp.blogspot.com/-sXN2Dc1_6CU/U-dww7HaRCI/AAAAAAAAT5M/qWV8s8HtTRw/s1600/san_lorenzo.jpg)
-
 ### Destinos turísticos de Tarija ‘Recreacionales’
 Tomatitas.- situada a orillas del rió Guadalquivir esta localidad se encuentra a 5 km de la ciudad de Tarija.
 
-[Tomatitas](http://www.periodicolaregion.com/v2/media/k2/items/cache/d521b3285331148964fc0a459a826ae3_XL.jpg)
+![Tomatitas](http://www.periodicolaregion.com/v2/media/k2/items/cache/d521b3285331148964fc0a459a826ae3_XL.jpg)
 
 Este destino turístico nos ofrece la gastronomía de los Cangrejitos de agua dulce, muy ricos y sabrosos.
 
@@ -43,12 +41,6 @@ Cercando la ciudad está la campiña tarijeña de espectacular belleza, San Jaci
 Tienes que conocer su historia, tradición y los muchos lugares turísticos de Tarija en “la ruta del Vino y los Singanis de altura”.
 
 ![Ruta del Vino y Singani](http://www.pathsofexcellence.org/wp-content/uploads/2013/05/tarija_vinedos.jpg )
-
-![Campiña Tarijeña](http://lavozdetarija.com/wp-content/uploads/2017/03/Sendas-campi%C3%B1a-e1488768445786.jpg)
-
-Tienes que conocer su historia, tradición y los muchos lugares turísticos de Tarija en “la ruta del Vino y los Singanis de altura”.
-
-![Ruta del Vino y Singani](http://www.vtbtourtarija.com/vtb/wp-content/uploads/2014/01/4.jpg)
 
 
 ### Sitios turísticos de Tarija ‘Bodegas y Viñedos’
@@ -71,7 +63,7 @@ Es el preámbulo al encuentro de productores de uva, vinos y singanis de Tarija.
 
 Valle de Concepción.- luego de la fiesta al día siguiente se desata toda la tradición.
 
-[Imagen]
+![Valle de Concepcion](https://4.bp.blogspot.com/-HcgfG7rxqgY/WaCb02Epj2I/AAAAAAAACpA/XpZGnxnXvPYFHxbPnQvhn433dcunlg0vgCLcBGAs/s1600/Valle-de-concepcion-Tarija-Bolivia.jpg )
 
 El vino de distintas bodegas tinto o blanco con sus peculiares colores y sabores alegra la mañana de quienes visitan el valle de Concepción.
 
@@ -83,7 +75,7 @@ Allí en sus antiguas casonas y sus callecitas pintorescas está guardada parte 
 
 La casa vieja.- donde todavía se elaboran vinos a la usanza tradicional.
 
-[Imagen]
+![La Casa Vieja](https://4.bp.blogspot.com/-Kaw3bKxJjqY/WaCbsjq7lhI/AAAAAAAACok/HarfdlIJKQMQ1rYdxZuM5RttobaDTNnNACLcBGAs/s1600/La-casa%2Bvieja-Tarija-Bolivia.jpg )
 
 También conocida como la bodega del abuelo un acogedor espacio que rememora el pasado son algunos de los lugares turísticos de Tarija que no pueden faltar en este paseo por la ruta del vino y los singanis.
 
@@ -94,7 +86,7 @@ Pero también marca el tiempo de las alegrías tras una ardua faena que dura tod
 Valle de Calamuchita.- también es parte del valle central de Tarija donde se produce casi toda la uva de Bolivia trabajan unas 11,000 personas cosechando el fruto de la vida.
 A 15 minutos se encuentras “Las Duelas” es una bodega artesanal que comercializa la producción de vino donde puedes degustar algunos productos antes de comprarlo (vino patero, mermelada).
 
-[Imagen]
+![Las Duelas](https://4.bp.blogspot.com/-BguUlxp2s2E/WaCbsRsdpbI/AAAAAAAACog/v6MDPy_HKz4nc4nf48Bw3v1nHmli6QDAwCLcBGAs/s1600/8Vinos-singanis-las-duelas-Tarija-Bolivia.jpg )
 
 Los vinos y singanis de Tarija producidos en los viñedos y bodegas más altos del mundo tienen una cualidad especial que los vuelve únicos.
 
@@ -103,7 +95,7 @@ Y así es como se juntan el trabajo de la gente, las uvas, el vino, el arte y su
 ### Atractivos turísticos de Tarija ‘Paleontológicos’
 El Antigal, Padcaya y junacas.- estas localidades se ubican entre los 50 y 65 km de la ciudad de Tarija.
 
-[Imagen]
+![El Antigal](https://2.bp.blogspot.com/-QXmQ7W8-h8w/WaCbsE4GsWI/AAAAAAAACoY/Z6RxrgMntuIwV2dcLbzYTrG9jnEN8nBRwCLcBGAs/s1600/Fosiles-de-animales-prehistoricos-Tarija-Bolivia.jpg )
 
 En estas zonas como en toda la región central de Tarija se encontraron los fósiles pertenecientes al pleistoceno, del periodo cuaternario.
 
@@ -112,7 +104,7 @@ También se pueden encontrar ruinas arqueológicas de civilizaciones antiguas qu
 Barbascuyo y Almendros.- Se encuentran a 54 y 30 Km de Tarija respectivamente.
 Existen una variedad de fósiles de animales pre históricos.
 
-[Imagen]
+![Barbuscuyo](https://1.bp.blogspot.com/-6-ksTnsTpWI/WaCbs19hChI/AAAAAAAACoo/o79RZT-3MpUu1StMFBocvxUqX8E-We8UACLcBGAs/s1600/Paleontologia-fosiles-en-Tarija-Bolivia.JPG )
 
 Rujero.- en esta región se encuentran restos de la “tortuga gigante” que habito la zona hace miles de años atrás.
 Se ubica a 30 km de la ciudad de tarija.
@@ -120,13 +112,13 @@ Se ubica a 30 km de la ciudad de tarija.
 ### Lugares turísticos de Tarija ‘Cálidos’
 Yacuiba.- este hermoso lugar esta ubicado en el chaco de Tarija, siendo una ciudad fronteriza con la Argentina.
 
-[Imagen]
+![Yacuiba](https://upload.wikimedia.org/wikipedia/commons/7/79/Monumento_en_honor_a_los_combatientes_de_la_guerra_del_chaco.jpg?uselang=es )
 
 Plazas y jardines que cautivan por su belleza e historia, hoy en día es considerada como la de mayor belleza arquitectónica y paisajística de la región.
 
 Villamontes.- otra bella ciudad de la chura Tarija ubicada en el también en el chaco a poco kilómetros de Yacuiba.
 
-[imagen]
+![Villamontes](https://upload.wikimedia.org/wikipedia/commons/e/ea/Puente-ferroviario-de-villa-montes.jpg?uselang=es )
 
 Tierra de combate e historia, donde se dieron valerosas batallas defendiendo la soberanía de Bolivia.
 
