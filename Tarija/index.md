@@ -16,19 +16,18 @@ La Ciudad de Tarija y sus provincias te ofrecen una variedad de atractivos para 
 
 Conoce, disfruta, vive, siente y explora los lugares turísticos de Tarija Bolivia.
 
-
 ## Provincias de Tarija ‘Pintorescos atractivos turísticos’
 Para comenzar esta singular vivencia, déjese arrullar por el rubor del rió y despierte con el trino de las aves.
 
 Lugares turísticos de Tarija ‘Históricos’
 San Lorenzo.- comenzamos visitando San Lorenzo cuna del héroe de la independencia Eustaquio Méndez más conocido como el Moto Méndez.
 
-![San Lorenzo] (https://upload.wikimedia.org/wikipedia/commons/1/15/Iglesia_de_San_Lorenzo_-_Tarija..jpg )
+![San Lorenzo](http://3.bp.blogspot.com/-sXN2Dc1_6CU/U-dww7HaRCI/AAAAAAAAT5M/qWV8s8HtTRw/s1600/san_lorenzo.jpg)
 
 Destinos turísticos de Tarija ‘Recreacionales’
 Tomatitas.- situada a orillas del rió Guadalquivir esta localidad se encuentra a 5 km de la ciudad de Tarija.
 
-[Imagen]
+[Tomatitas](http://www.periodicolaregion.com/v2/media/k2/items/cache/d521b3285331148964fc0a459a826ae3_XL.jpg)
 
 Este destino turístico nos ofrece la gastronomía de los Cangrejitos de agua dulce, muy ricos y sabrosos.
 
