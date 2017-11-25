@@ -5,10 +5,9 @@ En esta página exploraremos el páis más hermoso del mundo (¡¡¡no lo decimo
 
 * [Beni](Beni/index.md)
 * [Pando](Pando/index.md)
-* [La Paz](LaPaz/index.md)
-* [Chuquisaca](chuquisaca/index.md)
-* [Tarija](Tarija/index.md)
-* [Cochabamba](Cochabamba/index.md)
-* [Oruro](Oruro/Oruro.md)
-* [Potosi](Potosi/Potosi.md)
-
+* [La Paz](La Paz/index.md)
+* [chuquisaca](chuquisaca/index.md)
+* [tarija](tarija/index.md)
+* [cochabamba](cochabamba/index.md)
+* [oruro](oruro/index.md)
+* [potosi](potosi/index.md)
