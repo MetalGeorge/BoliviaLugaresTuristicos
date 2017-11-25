@@ -44,7 +44,7 @@
 
   El cerro de Potosí se encuentra representado en el escudo nacional del país.
 
-  ![Imagen Cerro Rico](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d1/Cerro_ricco.jpg/275px-Cerro_ricco.jpg)
+  ![Imagen Cerro Rico](http://boliviatravelchannel.tv/wp-content/uploads/2017/09/397645_20170418090049.jpg)
   
   Fuente: [Wikipedia Cerro Rico](https://es.wikipedia.org/wiki/Cerro_Rico)
   
@@ -54,7 +54,7 @@
 
   En los años cuarenta del siglo XX, el Gobierno de Bolivia mediante un Decreto Supremo del 5 de octubre de 1940, entregaba la antigua Real Casa de Moneda de Potosí a la Sociedad Geográfica y de Historia "Potosí" para su administración y organización de un museo y archivo histórico. En la actualidad este repositorío cultural se ha convertido en un centro museológico y documental muy conocido a nivel nacional e internacional.
   
-  ![Imagen Casa Moneda](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e0/Casa_de_la_moneda.jpg/800px-Casa_de_la_moneda.jpg)
+  ![Imagen Casa Moneda](https://upload.wikimedia.org/wikipedia/commons/thumb/e/eb/Casa_de_la_Moneda_de_Potos%C3%AD_%28Bolivia%29.jpg/1024px-Casa_de_la_Moneda_de_Potos%C3%AD_%28Bolivia%29.jpg)
 
   Fuente: [Wikipedia Casa_de_la_moneda](https://es.wikipedia.org/wiki/Casa_de_la_Moneda_de_Bolivia)
   
