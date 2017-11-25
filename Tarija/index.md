@@ -23,7 +23,7 @@ Para comenzar esta singular vivencia, déjese arrullar por el rubor del rió y d
 ###Lugares turísticos de Tarija ‘Históricos’
 San Lorenzo.- comenzamos visitando San Lorenzo cuna del héroe de la independencia Eustaquio Méndez más conocido como el Moto Méndez.
 
-![San Lorenzo] (https://upload.wikimedia.org/wikipedia/commons/1/15/Iglesia_de_San_Lorenzo_-_Tarija..jpg )
+![San Lorenzo](https://upload.wikimedia.org/wikipedia/commons/1/15/Iglesia_de_San_Lorenzo_-_Tarija..jpg )
 
 ### Destinos turísticos de Tarija ‘Recreacionales’
 Tomatitas.- situada a orillas del rió Guadalquivir esta localidad se encuentra a 5 km de la ciudad de Tarija.
@@ -36,17 +36,17 @@ Es un plato tradicional y lo puedes degustar con limón, papas, mote y pescadito
 
 Cercando la ciudad está la campiña tarijeña de espectacular belleza, San Jacinto, Tomatitas, Coimata, tolomosa, el Rincón de la Victoria son nombres de esto bellos paisajes que se encuentran entre los 5 y 15 km de la ciudad.
 
-![Campiña Tarijeña] (http://1.bp.blogspot.com/-yBgCCGIboKY/T2c_Mrk7A-I/AAAAAAAACCI/NUIFicC51Rw/s1600/coimata.jpg )
+![Campiña Tarijeña](http://1.bp.blogspot.com/-yBgCCGIboKY/T2c_Mrk7A-I/AAAAAAAACCI/NUIFicC51Rw/s1600/coimata.jpg )
 
 Tienes que conocer su historia, tradición y los muchos lugares turísticos de Tarija en “la ruta del Vino y los Singanis de altura”.
 
-![Ruta del Vino y Singani] (http://www.pathsofexcellence.org/wp-content/uploads/2013/05/tarija_vinedos.jpg )
+![Ruta del Vino y Singani](http://www.pathsofexcellence.org/wp-content/uploads/2013/05/tarija_vinedos.jpg )
 
 ### Sitios turísticos de Tarija ‘Bodegas y Viñedos’
 Uriondo.- a tan solo media hora de Tarija por una vía asfaltada es la capital del municipio de Uriondo y se conoce también como la tierra del vino y la uva.
 En esta ruta una parada indispensable (solo si es sábado o domingo) es el restaurante Son José para saborear un chanchito a la cruz, francamente inigualable.
 
-![Chancho a la Cruz] (http://www.eldeber.com.bo/export/sites/eldeber/img/2015/12/16/5671e57d045c4.jpeg )
+![Chancho a la Cruz](http://www.eldeber.com.bo/export/sites/eldeber/img/2015/12/16/5671e57d045c4.jpeg )
 
 En un desvió hacia el valle de Santa Ana visitamos las plantaciones de vid que se extienden por centenares de hectáreas, mostrando como las formas tradicionales del cultivo quedaron atrás dando paso a nuevas tecnologías de mayores rendimientos.
 
@@ -54,7 +54,7 @@ Desde que la viticultura comenzó en Tarija hace menos de medio siglo, ocurriero
 
 Nuestro recorrido continúa rumbo al valle, pues allí se presta la celebración de “la vendimia” durante la segunda quincena de marzo que marca el comienzo de la fiesta.
 
-![La Vendimia] (http://www.lostiempos.com/sites/default/files/styles/noticia_detalle/public/media_imagen/2016/3/5/5_vendimia.jpg?itok=z4SBVUaR )
+![La Vendimia](http://www.lostiempos.com/sites/default/files/styles/noticia_detalle/public/media_imagen/2016/3/5/5_vendimia.jpg?itok=z4SBVUaR )
 
 Una celebración única que se caracteriza por un extraordinario desborde de alegría, belleza y tradición.
 
