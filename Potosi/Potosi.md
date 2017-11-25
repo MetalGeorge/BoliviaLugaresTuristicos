@@ -46,7 +46,28 @@
 
   ![Imagen Cerro Rico](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d1/Cerro_ricco.jpg/275px-Cerro_ricco.jpg)
   
-  El Decreto Supremo del 30 de diciembre de 1851 dispuso que desde el 15 de enero de 1852 se use la nueva bandera, misma que el prefecto de Oruro izó en la columna recién concluida el 6 de agosto de 1852.
-
-  Fuente: [Wikipedia Cerro Rico] (https://es.wikipedia.org/wiki/Cerro_Rico)
+  Fuente: [Wikipedia Cerro Rico](https://es.wikipedia.org/wiki/Cerro_Rico)
   
+  # 3.2 La Casa de la Moneda
+  
+  La Casa Nacional de Moneda de Bolivia, conocida también como la Real Casa de Moneda o simplemente como la Casa Nacional de Moneda, se encuentra en la ciudad de Potosí, fundada en 1572 por el virrey Francisco de Toledo.
+
+  En los años cuarenta del siglo XX, el Gobierno de Bolivia mediante un Decreto Supremo del 5 de octubre de 1940, entregaba la antigua Real Casa de Moneda de Potosí a la Sociedad Geográfica y de Historia "Potosí" para su administración y organización de un museo y archivo histórico. En la actualidad este repositorío cultural se ha convertido en un centro museológico y documental muy conocido a nivel nacional e internacional.
+  
+  ![Imagen Casa Moneda](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e0/Casa_de_la_moneda.jpg/800px-Casa_de_la_moneda.jpg)
+
+  Fuente: [Wikipedia Casa_de_la_moneda](https://es.wikipedia.org/wiki/Casa_de_la_Moneda_de_Bolivia)
+  
+  # 3.3 Laguna Colorada
+  
+  La naturaleza en ocasiones ofrece unos colores en sus elementos que ya quisiera para sí el mejor editor de fotos.Hace unos días os hablábamos de la Laguna verde de Potosí, y no nos alejamos mucho de este lugar para presentaros la Laguna Colorada de Uyuni, en Bolivia.
+
+  La laguna Colorada es una laguna situada dentro de la Reserva Nacional de Fauna Andina Eduardo Abaroa, en el altiplano potosino cerca de la frontera con Chile. La coloración roja de sus aguas es debida a los sedimentos del color rojo y pigmentos de algunos tipos de algas.
+
+  Pero no siempre tiene el mismo color, pues la variación de las características de sus aguas así como la luz según el momento del día y el clima le confieren tonos diferentes que van de marrones hasta rojos intensos.
+  
+  La laguna tiene una superficie de 54 km² y una profundidad promedio de 35 centímetros, por lo que es habitual observar distintas aves posadas en su fondo. Es un lugar de cría para los flamencos andinos, aves migratorias que se juntan en grandes cantidades en estas aguas ricas en minerales, ofreciendo una de las postales más bonitas de la laguna.
+
+  ![Imagen Laguna Colorada](https://i.blogs.es/8dcb08/captura-de-pantalla-2011-08-03-a-las-112612/1366_2000.jpg)
+  
+  Fuente: [Laguna Colorada](https://www.diariodelviajero.com/america/la-laguna-colorada-de-uyuni-bolivia)
