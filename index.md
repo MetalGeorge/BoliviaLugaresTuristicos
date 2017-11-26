@@ -11,3 +11,4 @@ En esta página exploraremos el páis más hermoso del mundo (¡¡¡no lo decimo
 * [cochabamba](cochabamba/index.md)
 * [oruro](oruro/index.md)
 * [potosi](potosi/index.md)
+* [santa_cruz](santa_cruz/index.md)
